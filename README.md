@@ -42,9 +42,9 @@ Avengers: Endgame is one of my favorite movies because it brings together years 
 
 ## Memorable Quote
 
-> "I love you 3000."
+> "and I am Ironman."
 
-This quote is one of the most emotional moments in the movie because it represents the love between Tony Stark and his daughter.
+This iconic line is spoken by Tony Stark during the final battle against Thanos. It represents his courage, determination, and willingness to sacrifice himself to save the universe. It also brings his journey as Iron Man to a powerful and emotional conclusion.
 
 ## Final Review
 
